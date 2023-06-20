@@ -10,7 +10,7 @@
 ## things i need quiet space of my own
     making music 
 
-## things i can do outside on ny own
+## things i can do outside on my own
     weed the grapevine
 
 ## stuff that i need my home and lots of time
