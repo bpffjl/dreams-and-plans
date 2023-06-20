@@ -1,5 +1,5 @@
 # dreams-and-plans
-A place where I’m going to list my dreams and list things I can do
+    A place where I’m going to list my dreams and list things I can do
 
 ## quiet things i can always do even with people around
     write poetry 
@@ -8,7 +8,10 @@ A place where I’m going to list my dreams and list things I can do
     stretching 
 
 ## things i need quiet space of my own
-making music 
+    making music 
 
 ## things i can do outside on ny own
-weed the grapevine
+    weed the grapevine
+
+## stuff that i need my home and lots of time
+    brewing beer 
