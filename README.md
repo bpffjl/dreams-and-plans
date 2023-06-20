@@ -5,6 +5,7 @@ A place where I’m going to list my dreams and list things I can do
     write poetry 
     draw pictures
     knitting
+    stretching 
 
 ## things i need quiet space of my own
 making music 
