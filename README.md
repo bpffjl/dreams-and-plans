@@ -1,7 +1,7 @@
 # dreams-and-plans
 A place where I’m going to list my dreams and list things I can do
 
-## quiet things i can alwasy do even with people around
+## quiet things i can always do even with people around
     write poetry 
     draw pictures
     knitting
