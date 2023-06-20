@@ -1,5 +1,5 @@
 # dreams-and-plans
-    A place where I’m going to list my dreams and list things I can do
+A place where I’m going to list my dreams and list things I can do
 
 ## quiet things i can always do even with people around
     write poetry 
