@@ -1,4 +1,4 @@
-# awld gywydd 2 - end of father's dat
+# awld gywydd 2 - end of father's day
 
 father's day today\
 we play as it rains\
