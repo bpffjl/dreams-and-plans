@@ -1,4 +1,4 @@
-# limerick 2 - speed boat fantasy
+# limerick 3 - speed boat fantasy
 
 speed boat along the flat water zips\
 sam and luca hold on with tight grips\
